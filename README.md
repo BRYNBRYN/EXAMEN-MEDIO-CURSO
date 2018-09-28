@@ -1,0 +1,2 @@
+# EXAMEN-MEDIO-CURSO
+Ejercicios
